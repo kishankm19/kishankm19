@@ -3,8 +3,6 @@
 - 🌱 I’m currently studying cybersecurity
 
 - 📫 How to reach me:just ping me
-.
-.
 ig: @_kishan_km
 ✉️:kishan7165@gmail.com
 
